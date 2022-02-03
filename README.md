@@ -156,9 +156,9 @@ python3 bot.py
 
 (https://t.me/Master_Brain1)                                                                                                                                        
 
-𝙶𝚁𝙾𝚄𝙿 ›› [Amazon Prime]
+𝙶𝚁𝙾𝚄𝙿 ›› [MALAYALAM ROCKERS]
 
-(https://t.me/AmazonPrimeKings)                                             
+(https://t.me/MalayalamRocckers)                                             
 
 𝙲𝙷𝙰𝙽𝙽𝙴𝙻 ›› [Tamil Rockers]
 
